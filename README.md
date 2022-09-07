@@ -1,1 +1,1 @@
-Segera di rilis sc Terbaru
+Segera Di Rilis sc Terbaru
