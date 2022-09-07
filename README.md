@@ -1,2 +1,1 @@
-# Aisyahsc
-SC ini jangan di jual kasih free ajh jangan lupa follow github ku
+Segera di rilis sc Terbaru
